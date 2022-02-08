@@ -1,2 +1,2 @@
 # IDM-Activate-But-Not-Cancer-Anymore
-Install IDM Activate.exe only !!!
+Download IDM Activate.exe only !!!
